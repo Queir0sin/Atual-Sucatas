@@ -1,1 +1,1 @@
-https://queir0sin.github.io/Atual-Sucatas/
+https://cauamigueldev.github.io/Atual-Sucatas/
